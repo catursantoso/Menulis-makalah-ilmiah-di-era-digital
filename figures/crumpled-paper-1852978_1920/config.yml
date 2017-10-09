@@ -1,7 +1,7 @@
 ---
 version: 2
 multicolumn: false
-web-width: 500px
+web-width: 800
 align: center
 float: h!
 grid:
@@ -17,3 +17,4 @@ grid:
     - 1
     - 1
     url: "/users/87737/articles/204681/master/file/figures/crumpled-paper-1852978_1920/crumpled-paper-1852978_1920.png"
+    folder_url: "/users/87737/articles/204681/master/folder/figures/crumpled-paper-1852978_1920"
