@@ -19,3 +19,4 @@ grid:
     url: "/users/87737/articles/204681/master/file/figures/Untitled%20spreadsheet%20-%20Sheet1/Untitled%20spreadsheet%20-%20Sheet1.csv"
     folder_url: "/users/87737/articles/204681/master/folder/figures/Untitled spreadsheet
       - Sheet1"
+    treatFirstLineAsHeader: true
