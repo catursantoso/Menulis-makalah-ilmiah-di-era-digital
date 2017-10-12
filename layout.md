@@ -14,6 +14,8 @@ e2ohggdjm7g.html
 ccastr5rag8.html
 figures/books-2412490_1920
 n8emunok2cg.html
+figures/Screen Shot 2017-10-13 at 4-39-07 AM
+vi7l27chnd.html
 mcsr8h6u0n8.html
 figures/army-2186_1920
 8sqmq894gf8.html
