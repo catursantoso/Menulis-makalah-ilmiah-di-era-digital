@@ -8,5 +8,7 @@ figures/imrad
 e5964llse9o.html
 figures/key-96233_1920
 o0mg18o34p8.html
+e2ohggdjm7g.html
+ccastr5rag8.html
 figures/books-2412490_1920
 mcsr8h6u0n8.html
