@@ -4,7 +4,6 @@ figures/crumpled-paper-1852978_1920
 80jpv4boqh8.html
 figures/Screen Shot 2017-10-13 at 4-18-22 AM
 i2knbpo0il8.html
-tisl8g10mfo.html
 figures/Untitled spreadsheet - Sheet1
 kr0nnpojgso.html
 figures/imrad
