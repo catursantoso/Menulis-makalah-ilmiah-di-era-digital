@@ -23,6 +23,8 @@ figures/Screen Shot 2017-10-13 at 4-49-23 AM
 vvo7uqq0eag.html
 figures/black-18320_1920
 j2ti6jffsm8.html
+figures/Screen Shot 2017-10-13 at 4-59-26 AM
+cpsa6a0f018.html
 figures/man-2814937_1920
 9i3hnbk5hkg.html
 g1oaruf9kro.html
