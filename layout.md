@@ -8,6 +8,8 @@ figures/Untitled spreadsheet - Sheet1
 kr0nnpojgso.html
 figures/imrad
 e5964llse9o.html
+figures/Untitled spreadsheet - Sheet2
+uh9fulibm68.html
 figures/key-96233_1920
 o0mg18o34p8.html
 e2ohggdjm7g.html
