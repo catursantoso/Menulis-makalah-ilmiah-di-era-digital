@@ -14,3 +14,5 @@ figures/books-2412490_1920
 mcsr8h6u0n8.html
 figures/army-2186_1920
 8sqmq894gf8.html
+figures/black-18320_1920
+j2ti6jffsm8.html
