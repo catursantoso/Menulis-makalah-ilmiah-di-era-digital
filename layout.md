@@ -19,3 +19,5 @@ j2ti6jffsm8.html
 figures/man-2814937_1920
 9i3hnbk5hkg.html
 g1oaruf9kro.html
+figures/dandelion-761104_1920
+2hl89fh8njg.html
