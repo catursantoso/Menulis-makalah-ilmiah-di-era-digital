@@ -29,6 +29,8 @@ figures/Screen Shot 2017-10-13 at 4-59-26 AM
 cpsa6a0f018.html
 figures/man-2814937_1920
 9i3hnbk5hkg.html
+figures/Screen Shot 2017-10-13 at 7-41-54 AM
+ht926mn4j58.html
 g1oaruf9kro.html
 figures/dandelion-761104_1920
 2hl89fh8njg.html
