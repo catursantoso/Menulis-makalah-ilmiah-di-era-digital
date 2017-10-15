@@ -3,8 +3,6 @@ untitled.html
 figures/crumpled-paper-1852978_1920
 80jpv4boqh8.html
 aksgcv44g38.html
-up4anh3ogjg.html
-cbicqcod4pg.html
 jeqg6kj4kog.html
 1ru225nfmr8.html
 figures/Screen Shot 2017-10-13 at 4-18-22 AM
