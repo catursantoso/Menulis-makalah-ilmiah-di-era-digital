@@ -8,7 +8,6 @@ mhgrrofffa.html
 sj1qnmj1joo.html
 figures/Screen Shot 2017-10-13 at 4-18-22 AM
 i2knbpo0il8.html
-q2hnpj40so.html
 6fe0vo51gro.html
 figures/Untitled spreadsheet - Sheet1
 kr0nnpojgso.html
