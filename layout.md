@@ -9,7 +9,6 @@ md9urttna6o.html
 kr0nnpojgso.html
 8351klghcqo.html
 pjdf8hmf8jg.html
-figures/imrad
 e5964llse9o.html
 uh9fulibm68.html
 figures/key-96233_1920
