@@ -13,7 +13,6 @@ kr0nnpojgso.html
 pjdf8hmf8jg.html
 figures/imrad
 e5964llse9o.html
-figures/Untitled spreadsheet - Sheet2
 uh9fulibm68.html
 figures/key-96233_1920
 o0mg18o34p8.html
