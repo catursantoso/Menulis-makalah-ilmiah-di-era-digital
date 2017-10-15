@@ -5,7 +5,6 @@ figures/crumpled-paper-1852978_1920
 aksgcv44g38.html
 74etfph3hk8.html
 mhgrrofffa.html
-figures/Untitled spreadsheet - Sheet2
 sj1qnmj1joo.html
 figures/Screen Shot 2017-10-13 at 4-18-22 AM
 i2knbpo0il8.html
