@@ -11,6 +11,8 @@ dmongloh8kg.html
 kr0nnpojgso.html
 8351klghcqo.html
 pjdf8hmf8jg.html
+figures/abstract_sample
+jc3q8nlsoag.html
 e5964llse9o.html
 uh9fulibm68.html
 figures/key-96233_1920
