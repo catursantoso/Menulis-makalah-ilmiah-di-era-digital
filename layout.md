@@ -8,7 +8,6 @@ figures/Untitled spreadsheet - Sheet2
 md9urttna6o.html
 mhgrrofffa.html
 sj1qnmj1joo.html
-i2knbpo0il8.html
 kr0nnpojgso.html
 8351klghcqo.html
 pjdf8hmf8jg.html
