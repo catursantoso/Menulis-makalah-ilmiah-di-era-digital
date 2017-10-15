@@ -10,7 +10,6 @@ figures/Screen Shot 2017-10-13 at 4-18-22 AM
 i2knbpo0il8.html
 q2hnpj40so.html
 uef7cjchrko.html
-tio7943ho9.html
 6fe0vo51gro.html
 figures/Untitled spreadsheet - Sheet1
 kr0nnpojgso.html
