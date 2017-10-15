@@ -1,7 +1,7 @@
 ---
 version: 2
 multicolumn: false
-web-width: 800
+web-width: 500px
 align: center
 float: h!
 grid:
@@ -17,4 +17,3 @@ grid:
     - 1
     - 1
     url: "/users/87737/articles/204681/master/file/figures/imrad/imrad.png"
-    folder_url: "/users/87737/articles/204681/master/folder/figures/imrad"
