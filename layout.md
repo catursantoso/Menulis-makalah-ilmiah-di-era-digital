@@ -6,8 +6,6 @@ aksgcv44g38.html
 74etfph3hk8.html
 figures/Untitled spreadsheet - Sheet2
 md9urttna6o.html
-mhgrrofffa.html
-sj1qnmj1joo.html
 kr0nnpojgso.html
 8351klghcqo.html
 pjdf8hmf8jg.html
