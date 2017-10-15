@@ -3,7 +3,6 @@ untitled.html
 figures/crumpled-paper-1852978_1920
 80jpv4boqh8.html
 aksgcv44g38.html
-ijdo5fvf36o.html
 up4anh3ogjg.html
 cbicqcod4pg.html
 jeqg6kj4kog.html
