@@ -38,3 +38,4 @@ figures/dandelion-761104_1920
 2hl89fh8njg.html
 figures/Screen Shot 2017-10-13 at 3-33-43 AM
 uj8jlc6kc4g.html
+figures/doi_connections
