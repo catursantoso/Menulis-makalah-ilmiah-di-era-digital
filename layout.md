@@ -25,6 +25,8 @@ figures/army-2186_1920
 8sqmq894gf8.html
 figures/Screen Shot 2017-10-13 at 4-49-23 AM
 vvo7uqq0eag.html
+figures/researchStructure
+qq7sfuvfdpc.html
 figures/black-18320_1920
 j2ti6jffsm8.html
 figures/Screen Shot 2017-10-13 at 4-59-26 AM
